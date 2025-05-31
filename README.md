@@ -1,3 +1,3 @@
-## 👋 Hiii :3 👋
+## Hiii :3 👋
 
-📫 telegram - @diegish 📫
+📫 telegram - @diegish
